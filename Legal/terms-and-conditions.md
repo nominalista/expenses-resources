@@ -1,4 +1,4 @@
-# TERMS AND CONDITIONS
+# Terms and Conditions
 
 Last updated: May 1, 2022.
 
